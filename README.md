@@ -15,3 +15,6 @@ Après 40 minutes d'attente, le métro arriva enfin. Je montai à bord avec un s
 Alors que le métro avançait dans les tunnels sombres, j'ai remarqué un message écrit en petites lettres près de la fenêtre : "Suivez le chemin des étoiles". Intrigué, je me suis demandé où il pouvait bien mener. Mon esprit s'est empli de questions, et une lueur d'aventure a brillé dans mes yeux.
 
 À la station suivante, une femme étrangement familière est montée à bord du métro, portant une écharpe rouge assortie à la croix sur la carte de Lola. Elle semblait observer discrètement chaque passager. Mon cœur s'est emballé, sentant que quelque chose de mystérieux était sur le point de se dévoiler.
+
+Lola a trouvé une vieille carte au fond du métro de sa grand-mère. La carte montre un lieu inconnu marqué d'une énigmatique croix rouge. Curieuse, Anna décide de partir à l'aventure pour découvrir ce mystérieux endroit. Que va-t-elle trouver...
+
