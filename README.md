@@ -14,4 +14,4 @@ Finalement, j'ai décidé de rejoindre les chanteurs de rue, créant une belle h
 
 Après 40 minutes d'attente, le métro arriva enfin. Je montai à bord avec un sourire, reconnaissant pour cette pause musicale inattendue. J'ai réalisé que parfois, il est essentiel de prendre le temps d'apprécier les moments simples de la vie, même si cela signifie retarder un rendez-vous pour profiter de la beauté inattendue de la ville et de ses habitants.
 
-
+Lola a trouvé une vieille carte au fond du métro de sa grand-mère. La carte montre un lieu inconnu marqué d'une énigmatique croix rouge. Curieuse, Anna décide de partir à l'aventure pour découvrir ce mystérieux endroit. Que va-t-elle trouver...
